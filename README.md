@@ -6,7 +6,7 @@ They will be amazing and We should too.
 
 If you can help to make this reality it is guarantee that it will be worth it.
 
-The goal. My goal is simple. Free world trade. 
+The goal. The goal is simple. Free world trade. 
 
 
 
